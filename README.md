@@ -1,5 +1,5 @@
 <p align="center"> <img src="https://github.com/sunshineboyisleeping/ADrugAgainstWar/blob/main/kmfdm.png" width="500" height="500" />
-  <p align="center"> " ι &nbsp;ωαѕ &nbsp;∂єηιє∂ &nbsp;ωнσ &nbsp;ι &nbsp;ωαѕ &nbsp;ƒσя &nbsp;α &nbsp;ℓσηg &nbsp;тιмє. "
+  <p align="center"> " ι &nbsp;ωαѕ &nbsp; мя. &nbsp;¢υттєя &nbsp;тσηιgнт. "&nbsp;ᨶ႒ᩚ &nbsp;ι &nbsp;ℓυν &nbsp;му &nbsp;нв!
 
    <img src="https://github.com/sunshineboyisleeping/ADrugAgainstWar/blob/main/BULLET.gif" width="50" height="50" />
    𝒌𝒆𝒗𝒊𝒏 &nbsp; ℎ𝑒&nbsp; ノ &nbsp; 𝑡ℎ𝑒𝑦 &nbsp;.ᐟ 
