@@ -19,8 +19,8 @@
   <img src="https://github.com/rxvcnge/rxvcnge/blob/main/DOG%20TAG.gif" width="50" height="50" />
 
  <p align="center"> <img src="https://github.com/rxvcnge/rxvcnge/blob/main/BOOTS.gif" width="65" height="65" />       
- <p align="center"> ᡕᠵデᡁ᠊╾━ &nbsp;𝚃.𝙲.𝙲 &nbsp;btw ⊹ ࣪ ˖ ໒꒱
-  <p align="center"> ((i &nbsp;dont &nbsp;condone &nbsp;or &nbsp;glorify &nbsp;them &nbsp;lolz &nbsp;ˎˊ˗
+ <p align="center"> ᡕᠵデᡁ᠊╾━ &nbsp;𝙽𝙾𝚃 &nbsp;𝚃.𝙲.𝙲 &nbsp;⊹ ࣪ ˖ ໒꒱
+  <p align="center"> ((idgaf &nbsp;if &nbsp;u're &nbsp;𝚃.𝙲.𝙲 &nbsp;js &nbsp;don't &nbsp;condone &nbsp;& &nbsp;glorify them &nbsp;ʚଓ &nbsp;ˎˊ˗
 
 
 
